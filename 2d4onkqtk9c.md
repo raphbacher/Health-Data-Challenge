@@ -1,3 +1,3 @@
 # Title
 
-a+\sigma\)
+\a+\sigma\)
