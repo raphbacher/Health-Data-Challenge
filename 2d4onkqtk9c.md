@@ -1,3 +1,3 @@
 # Title
 
-hi $a+\sigma$$
+hi $$a+\sigma$$
