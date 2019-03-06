@@ -1,6 +1,4 @@
 untitled.html
-oo43ja4cq4c.html
-dhirq0surjs.html
 jfp2djej6sg.html
 he3kicg9824.html
 despbssq9fk.html
