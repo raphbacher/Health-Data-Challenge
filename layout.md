@@ -14,7 +14,6 @@ figures/1551886599297
 h9sk9mgfnr.html
 pp7sh19kgis.html
 osefsqr0uoc.html
-67nocvma7n8.html
 cgo9iil962s.html
 cv4lj6mnkb.html
 nqg9oqknkp.html
