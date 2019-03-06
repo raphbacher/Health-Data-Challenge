@@ -4,6 +4,8 @@ figures/table1
 ceae9kigq5s.html
 figures/1551885470861
 dg5fllgpq98.html
+figures/1551885482641
+sjhq2fnsgpg.html
 pp7sh19kgis.html
 osefsqr0uoc.html
 pftlit7ht8.html
