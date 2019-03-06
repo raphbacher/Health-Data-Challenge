@@ -8,6 +8,8 @@ figures/1551885482641
 sjhq2fnsgpg.html
 figures/1551885477983
 4acpnknaoq4.html
+figures/table2
+sucscr1bpe8.html
 pp7sh19kgis.html
 osefsqr0uoc.html
 pftlit7ht8.html
